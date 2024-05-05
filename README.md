@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences<a href="https://drive.google.com/drive/u/3/folders/1aNcgGBFicEzlAGrBSzd9wP231JZCQOVw"> my-cv</a>
 
-- ⚡ Fun fact **I am a Serious, Straight-forward and curious about Coding.**
+- ⚡ Fun fact **I dream of living inside a Coding Realm of my own.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
